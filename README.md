@@ -5,3 +5,4 @@
 - i like music,singing,cooking and coding stuff.
 - i am pansexsual,genderfuild and trans.
 - dni list! ; homophobic,raisist and other.
+  
